@@ -1,3 +1,5 @@
-# Color science workshop for conservators  
+# Color science workshop for conservators 
 
-Presentation slides for the 'green square' workshop on color science for conservators 
+Are you a conservator and want to understand better how to choose your pigment for your retouches? 
+
+Here a the presentation slides for the workshop on color science for conservators. 
